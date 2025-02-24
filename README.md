@@ -1,1 +1,1 @@
-https://innohivelabs.github.io/SEO_Website_profile/
+https://innohivelabs.github.io/SEO_website/
